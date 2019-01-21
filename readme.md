@@ -4,3 +4,5 @@ but i like :tea: too
 as long as I like it too
 
 ANDDD
+
+What should you do to become a pro-grammer?
